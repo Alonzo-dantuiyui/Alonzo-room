@@ -1,4 +1,6 @@
 # Alonzo-room
 Alonzo-room
 https://bing.com
-https://soap.cc/atri
+https://wg.saop.cc/atri/
+https://inarigal.com/webgame/SakuranoToki/
+https://inarigal.com
